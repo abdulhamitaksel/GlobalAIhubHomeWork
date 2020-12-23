@@ -1,1 +1,2 @@
+Abdulhamit AKSEL
 # GlobalAIhubHomeWork
